@@ -1,2 +1,0 @@
-# geordee
-Github Profile
